@@ -1,1 +1,0 @@
-# Ciudad-Mitad-del-Mundo
